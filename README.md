@@ -8,6 +8,6 @@ Generally, I know node.js and discord.js. But I'm not as good a coder as you thi
 - I have two discord bots that I have posted
 - 💛 [Drizzly Radio](https://top.gg/bot/728891545042026556)
 <br>
-<a><b>Total my profile visit:</b></a> <img src="https://views.drizzlydeveloper.gq/en/cihatksma/embed.svg">
+<a><b>Total my profile visit:</b></a> <img src="https://totalviews.glitch.me/tessts">
 
 [Discord](http://cihatksm.tk/discord) | [Instagram](http://cihatksm.tk/instagram) | [Twitter](http://cihatksm.tk/twitter)
