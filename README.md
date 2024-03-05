@@ -1,1 +1,1 @@
-![image](https://github.com/CihatKsm/cihatksm/assets/44941726/1e3bf9b6-802c-44c2-84c8-6075379d1110)
+![image](https://github.com/CihatKsm/cihatksm/assets/44941726/d4c59e78-7ea9-4913-8c4d-a8a0c03a2ab1)
